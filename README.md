@@ -7,6 +7,7 @@
 * https://www.Lifeofvids.com
 * https://www.Unsplash.com
 ### Awesome!
+* https://voicemaker.in/
 * https://logomakr.com/
 * http://htmlcolorcodes.com
 * http://internet-map.net
