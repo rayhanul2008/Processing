@@ -1,6 +1,6 @@
 ### 4k Videos
-* https://www.pexels.com/
-* https://www.Pixabay.com
+* [Photos & Videos](https://www.pexels.com/)
+* [Photos,Vectors & Videos](https://www.Pixabay.com)
 * https://www.Cover.com
 * https://www.Videezy.com
 * https://www.Videvo.net
