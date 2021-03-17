@@ -18,3 +18,6 @@
 * https://www.flightradar24.com/
 * https://coneixelriu.museudelter.cat/ocells.php
 * [Music](https://soundcloud.com/lakeyinspired)
+* [Qr Code](https://www.the-qrcode-generator.com/)
+* [All png](https://www.flaticon.com/)
+* [Graphics Card](https://graphicriver.net/)
