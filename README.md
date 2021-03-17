@@ -22,3 +22,4 @@
 * [All png](https://www.flaticon.com/)
 * [Graphics Card](https://graphicriver.net/)
 * [Text](https://www.lipsum.com/)
+* [FreePik 10](https://www.freepik.com/)
