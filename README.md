@@ -23,3 +23,5 @@
 * [Graphics Card](https://graphicriver.net/)
 * [Text](https://www.lipsum.com/)
 * [FreePik 10](https://www.freepik.com/)
+* [Free Photoshop Brush](https://www.brusheezy.com/)
+
