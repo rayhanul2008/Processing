@@ -21,7 +21,9 @@
 * [Qr Code](https://www.the-qrcode-generator.com/)
 * [All png](https://www.flaticon.com/)
 * [Graphics Card](https://graphicriver.net/)
-* [Text](https://www.lipsum.com/)
+* [Text Free](https://www.lipsum.com/)
 * [FreePik 10](https://www.freepik.com/)
 * [Free Photoshop Brush](https://www.brusheezy.com/)
+* [1001 Free Fonts](1001freefonts.com)
+* [Da Font](https://www.dafont.com/)
 
