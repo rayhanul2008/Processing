@@ -6,6 +6,7 @@
 * https://www.Videvo.net
 * https://www.Lifeofvids.com
 * https://www.Unsplash.com
+* https://getintopc.com/?s=photoshop+cs6
 ### Awesome!
 * https://voicemaker.in/
 * https://logomakr.com/
