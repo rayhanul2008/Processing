@@ -1,3 +1,99 @@
+## Some Useful Website for Designer
+### DOWNLOAD MOCK UP
+https://mockupsforfree.com/
+https://www.mockupworld.co
+https://graphicburger.com 
+https://zippypixels.com 
+https://www.pixeden.com 
+https://freebiesbug.com 
+https://psdrepo.com 
+https://mockups-design.com 
+https://medialoot.com/free-mockups/ 
+https://barnimages.com 
+https://themockup.club 
+https://barnimages.com/freebies/ 
+### INSPIRATION FOR MOBILE APPLICATION
+https://inspired-ui.com 
+https://www.calltoidea.com 
+https://www.mobile-patterns.com 
+https://www.uplabs.com 
+https://www.lovelyui.com 
+https://www.iosicongallery.com 
+https://uigarage.net 
+LOGO INSPIRATION
+https://www.logomoose.com 
+https://logopond.com 
+https://www.logolounge.com 
+http://logofaves.com 
+http://www.logotalkz.com 
+http://logospire.com 
+### INSPIRATION
+https://www.inspirationde.com 
+https://www.designspiration.net 
+https://www.pinterest.com 
+https://dribbble.com 
+https://theinspirationgrid.com 
+https://thedesigninspiration.com 
+https://www.behance.net 
+https://www.awwwards.com/websites 
+https://onepagelove.com 
+### FREE VIDEOS
+https://mixkit.co 
+https://coverr.co 
+https://www.motionplaces.com 
+https://www.videezy.com/ 
+https://www.videvo.net/ 
+https://pixabay.com/videos/ 
+https://videos.pexels.com/ 
+https://www.cutestockfootage.com/ 
+http://www.movietools.info/ 
+https://www.monzoom.com 
+### PICS WITHOUT BACKGROUND
+https://www.kisspng.com 
+http://pngimg.com/ 
+https://www.footyrenders.com/ 
+https://pngtree.com/ 
+https://www.freepngimg.com/ 
+https://www.pngfly.com/ 
+http://www.pngplay.com/ 
+https://www.stickpng.com/ 
+http://www.pngall.com/ 
+https://www.freepngs.com/ 
+http://www.pngmart.com/ 
+### FREE PICTURES
+https://unsplash.com/ 
+https://www.pexels.com/ 
+https://pixabay.com/ 
+https://stocksnap.io/ 
+https://burst.shopify.com/ 
+https://www.reshot.com/ 
+https://foodiesfeed.com/ 
+https://www.gratisography.com/ 
+http://freestocks.org/ 
+http://www.lifeofpix.com/ 
+http://skitterphoto.com/ 
+https://www.maxpixel.net/ 
+https://picjumbo.com/ 
+http://littlevisuals.co/ 
+http://nos.twnsnd.co/ 
+https://magdeleine.co/browse/ 
+https://freephotos.cc/ 
+https://startupstockphotos.com 
+### COLORS
+https://colorhunt.co 
+https://klart.io 
+https://color.adobe.com 
+https://webkul.github.io 
+https://pigment.shapefactory.co 
+http://bit.ly/2Jam0Vu 
+https://brandcolors.net 
+https://webgradients.com 
+https://colorleap.app/ 
+https://mycolor.space 
+http://www.colorlisa.com/ 
+https://www.materialpalette.com/ 
+https://javier.xyz/cohesive-colors/ 
+https://www.colorinspire.io/
 ### 4k Videos
 * [Photos & Videos](https://www.pexels.com/)
 * [Photos,Vectors & Videos](https://www.Pixabay.com)
