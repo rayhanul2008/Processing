@@ -21,7 +21,7 @@
 * https://www.lovelyui.com 
 * https://www.iosicongallery.com 
 * https://uigarage.net 
-* LOGO INSPIRATION
+### LOGO INSPIRATION
 * https://www.logomoose.com 
 * https://logopond.com 
 * https://www.logolounge.com 
@@ -83,7 +83,7 @@
 ### COLORS
 * https://colorhunt.co 
 * https://klart.io 
-* * https://color.adobe.com 
+* https://color.adobe.com 
 * https://webkul.github.io 
 * https://pigment.shapefactory.co 
 * http://bit.ly/2Jam0Vu 
@@ -126,3 +126,58 @@
 * [Da Font]https://www.dafont.com/)
 * [PDF TO Word]https://www.sodapdf.com/pdf-to-word/)
 
+### স্টক ফটোর জন্যঃ
+stocksnap.io
+pexels.com
+nappy.co
+landingstock.com
+ইলাস্টেশনের জন্যঃ
+drawkit.io
+undraw.co
+lukaszadam.com
+### ফ্রি রিসোর্সের জন্যঃ
+Freepik
+Colour Lovers
+Subtle Patterns
+Size Marks
+Webydo
+guideguide
+No More Banding
+Make App Icon
+Hexy
+Perfect Effects 3
+CG Textures
+WhattheFont!
+Fribbble
+Instagram Filters
+Free Lorem Ipsum Generator
+Photoshop Share Plugin
+Social Kit
+### আইকনের জন্যঃ
+thenounproject.com
+simpleicons.org
+animaticons.co
+### ফন্টের জন্যঃ
+fonts.google.com
+fontfabric.com
+usemodify.com
+fontsquirrel.com
+dafont.com
+বাংলা ফন্টের জন্যঃ
+www.lipighor.com
+https://www.freebanglafont.com/
+https://banglafontlibrary.com/en/fonts/
+### ফ্রি স্টোক ভিডিওর জন্যঃ
+videezy.com
+mixkit.com
+coverr.com
+মোকাপের জন্যঃ
+shotsnapp.com
+screenpeek.io
+mockupsjar.com
+### ডিজাইন আইডিয়া নেওয়ার জন্যঃ
+httpster.net
+microcopyinspirations.com
+behance.net
+dribbble.com
+inspofinds.com
