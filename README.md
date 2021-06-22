@@ -1,7 +1,7 @@
 * https://education.shouldbefree.workers.dev/0:/
-* [Master](https://docs.google.com/document/d/1wayuB-n4QsUQwTMaBKsql13_db7nbSMpxXfI3YTBwGY/edit?fbclid=IwAR0sbilbjZ4cUDbIFExynRT-z3NJlHBtt1Zo3xEOrYO6h6TcQfWToxG1pFs)
-* [Video Editting](https://drive.google.com/drive/folders/1EPIfMcqs1uXtK4Pa1MXIIG6KwbueW3KC?fbclid=IwAR0a6hiYprNxg2okBYG6e7fX2xS6SrGmOSqu-gHLlXW_s2_pziCe-mdHoKI&sort=13&direction=a)
-* [video Editing camtasia](https://drive.google.com/drive/folders/1W35JW8bMzwkwXgJyeGMZUzwDK1t4Ss2r?fbclid=IwAR1wnnwIkE_zknBaZRCwgOAeHx3xJ_gtssdHWhyaxULsyL3oL-eQiKDDecQ)
+* [Master](https://docs.google.com/document/d/1wayuB-n4QsUQwTMaBKsql13_db7nbSMpxXfI3YTBwGY/edit?usp=sharing)
+* [Video Editting](https://drive.google.com/drive/folders/1EPIfMcqs1uXtK4Pa1MXIIG6KwbueW3KC?usp=sharing)
+* [video Editing camtasia](https://drive.google.com/drive/folders/1W35JW8bMzwkwXgJyeGMZUzwDK1t4Ss2r?usp=sharing)
 * [Quran](https://drive.google.com/drive/folders/1m7GYUvJUk0wWHSTHZT8pFfZqHP8zuupK?usp=sharing)
 * 
 ### https://mega.nz/folder/eoxnWRAS#ITKK9j9I5pLdHbFTzhHTgg
