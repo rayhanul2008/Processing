@@ -3,7 +3,7 @@
 * [Video Editting](https://drive.google.com/drive/folders/1EPIfMcqs1uXtK4Pa1MXIIG6KwbueW3KC?usp=sharing)
 * [video Editing camtasia](https://drive.google.com/drive/folders/1W35JW8bMzwkwXgJyeGMZUzwDK1t4Ss2r?usp=sharing)
 * [Quran](https://drive.google.com/drive/folders/1m7GYUvJUk0wWHSTHZT8pFfZqHP8zuupK?usp=sharing)
-* 
+* [10 minutes school](https://drive.google.com/drive/u/0/folders/1Jji1SMNRW9LQnmyacyPPEpXTOYWTWQeu)
 ### https://mega.nz/folder/eoxnWRAS#ITKK9j9I5pLdHbFTzhHTgg
 ## Some Useful Website for Designer
 ### DOWNLOAD MOCK UP
