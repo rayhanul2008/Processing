@@ -6,6 +6,7 @@
 * [10 minutes school] https://drive.google.com/drive/u/0/folders/1Jji1SMNRW9LQnmyacyPPEpXTOYWTWQeu)
 * [projokti team] https://mega.nz/folder/s1oGECBJ#0vYnjUD2U7th1k0_Ukw4YQ)
 * [Graphics] https://mega.nz/folder/eoxnWRAS#ITKK9j9I5pLdHbFTzhHTgg
+* [Jhankar Mahbub] https://mega.nz/folder/33hDDIKT#IYBwZr8uKXV1nGq88l-bag
 ## Some Useful Website for Designer
 ### DOWNLOAD MOCK UP
 * https://mockupsforfree.com/
