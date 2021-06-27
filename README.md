@@ -1,10 +1,11 @@
 * https://education.shouldbefree.workers.dev/0:/
-* [Master](https://docs.google.com/document/d/1wayuB-n4QsUQwTMaBKsql13_db7nbSMpxXfI3YTBwGY/edit?usp=sharing)
-* [Video Editting](https://drive.google.com/drive/folders/1EPIfMcqs1uXtK4Pa1MXIIG6KwbueW3KC?usp=sharing)
-* [video Editing camtasia](https://drive.google.com/drive/folders/1W35JW8bMzwkwXgJyeGMZUzwDK1t4Ss2r?usp=sharing)
-* [Quran](https://drive.google.com/drive/folders/1m7GYUvJUk0wWHSTHZT8pFfZqHP8zuupK?usp=sharing)
-* [10 minutes school](https://drive.google.com/drive/u/0/folders/1Jji1SMNRW9LQnmyacyPPEpXTOYWTWQeu)
-### https://mega.nz/folder/eoxnWRAS#ITKK9j9I5pLdHbFTzhHTgg
+* [Master] https://docs.google.com/document/d/1wayuB-n4QsUQwTMaBKsql13_db7nbSMpxXfI3YTBwGY/edit?usp=sharing)
+* [Video Editting] https://drive.google.com/drive/folders/1EPIfMcqs1uXtK4Pa1MXIIG6KwbueW3KC?usp=sharing)
+* [video Editing camtasia] https://drive.google.com/drive/folders/1W35JW8bMzwkwXgJyeGMZUzwDK1t4Ss2r?usp=sharing)
+* [Quran] https://drive.google.com/drive/folders/1m7GYUvJUk0wWHSTHZT8pFfZqHP8zuupK?usp=sharing)
+* [10 minutes school] https://drive.google.com/drive/u/0/folders/1Jji1SMNRW9LQnmyacyPPEpXTOYWTWQeu)
+* [projokti team] https://mega.nz/folder/s1oGECBJ#0vYnjUD2U7th1k0_Ukw4YQ)
+* [Graphics] https://mega.nz/folder/eoxnWRAS#ITKK9j9I5pLdHbFTzhHTgg
 ## Some Useful Website for Designer
 ### DOWNLOAD MOCK UP
 * https://mockupsforfree.com/
