@@ -189,3 +189,41 @@ microcopyinspirations.com
 behance.net
 dribbble.com
 inspofinds.com
+
+### New Resorch
+* https://www.brushking.eu/
+* https://www.toptal.com/designers/subtlepatterns/
+* http://colorhunt.co/
+https://webkul.github.io/coolhue/
+https://flatuicolors.com/
+https://coolors.co/162621-1c40….49-3aafb9-6bc5f9-99a
+http://www.colinkeany.com/blend/
+https://coolors.co/162621-1c40….49-3aafb9-6bc5f9-99a
+https://color.adobe.com/
+Materialpalette: https://www.materialpalette.com/
+Flatuicolorpicker: http://www.flatuicolorpicker.com/
+coolors: https://coolors.co/
+Brandcolors: https://brandcolors.net/
+https://color.adobe.com/create/color-wheel/
+ওয়েব ডিজাইন ও গ্রাফিক ডিজাইন ইত্যাদির এর জন্য কালার পিকার এর গুরুত্ব অনেক। যারা ওয়েব ডিজাইন ও গ্রাফিক ডিজাইন করেন তারা খুব ভালো করে জানেন এর গুরুত্ব।
+
+### Fonts
+http://www.fontfabric.com/nexa-free-font/
+https://www.fontsquirrel.com/fonts/lato
+http://www.dafont.com/enigmatic.font
+https://www.fontsquirrel.com/fonts/Exo
+https://www.fontsquirrel.com/fonts/raleway
+https://www.fontsquirrel.com/fonts/Titillium
+http://www.dafont.com/yanone-kaffeesatz.font
+https://www.fontsquirrel.com/fonts/liberation-sans
+https://www.fontsquirrel.com/fonts/PT-Sans
+
+###
+# Poster Mockup :-
+1.https://mega.nz/file/xqYQ3QTC#QGpifhTK3syxkWoNd_GNWclD1ui635MFf7T1IDd_lOc
+
+2.https://mega.nz/folder/KFF10IyB#2489eY54D2aos3f-R-gZtg
+3.https://drive.google.com/file/d/17KI4dOnW1hoSCsNop23l0eTfbhOb1Ayv/view?fbclid=IwAR0iEZ8aYCKpmODpgyTwY5UzrKTLcSMa9JqJbjTem0ahoYHs6vxyqVzm3EI
+
+# photo mockup:- big collection download:-
+1.https://drive.google.com/drive/folders/11cJCuIs8H9F-DcVUGvi_XJNFX4TU9cQo
